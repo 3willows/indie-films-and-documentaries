@@ -6,6 +6,8 @@
 
 [The Game Designers](https://www.youtube.com/watch?v=jLkgdpzfiRA)
 
+[The Internet’s Own Boy: The Story of Aaron Swartz](https://www.youtube.com/watch?v=9vz06QO3UkQ&rco=1) 
+
 # Law
 
 [McLibel](https://www.youtube.com/watch?v=V58kK4r26yk&t=75s)
