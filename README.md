@@ -8,6 +8,11 @@
 
 [The Internet’s Own Boy: The Story of Aaron Swartz](https://www.youtube.com/watch?v=9vz06QO3UkQ&rco=1) 
 
+Only behind paywall:
+
+Antisocial Network: Memes to Mayhem
+- on the history behind 4chan and anonymous, starting in the early 2000s
+
 # Law
 
 [McLibel](https://www.youtube.com/watch?v=V58kK4r26yk&t=75s)
