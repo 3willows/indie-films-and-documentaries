@@ -24,7 +24,7 @@ Antisocial Network: Memes to Mayhem
 
 [Interview with Lord Denning with Prof Wade](https://www.youtube.com/watch?v=qIGYX3aRSVI&t=2s)
 
-[Justice Leemings on Justice Sackar's book on Lord Devlin](https://www.youtube.com/watch?v=xphUQoXD-KE&t=870s)
+[Justice Leeming on Justice Sackar's book on Lord Devlin](https://www.youtube.com/watch?v=xphUQoXD-KE&t=870s)
 
 
 ## To watch 
